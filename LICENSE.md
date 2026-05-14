@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite raydium trading bot Addon | token-launch-monitoring + price-impact-analysis, the #1 raydium trading bot. Includes token-launch-monitoring and
 
 
 
